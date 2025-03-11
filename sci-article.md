@@ -1,1 +1,1 @@
-This is sci article abt phy
+This is abt both phy and chem
