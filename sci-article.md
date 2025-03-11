@@ -1,1 +1,1 @@
-This is a chemistry article
+This is abt both phy and chem
